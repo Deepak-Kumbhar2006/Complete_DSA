@@ -1,1 +1,1 @@
-Deepak is learning DSA
+Deepak is fast learner
