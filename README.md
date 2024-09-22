@@ -1,1 +1,1 @@
-Deepak is fast learner
+Deepak Kumbhar is learning DSA
